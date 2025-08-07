@@ -26,7 +26,6 @@ Here’s one of my favourites:
 
 ## 🔗 You’ll also find me here
 
-- 📷 [Instagram](https://www.instagram.com/yourweddingphotographer.uk)  
 - 🐘 [Mastodon](https://mastodon.social/@yourweddingphotographer)  
 - 🎨 [Behance](https://www.behance.net/tzelinsky)  
 - 📍 [Google Business Profile](https://www.google.com/maps/place/Your+Wedding+Photographer+Cardiff)
