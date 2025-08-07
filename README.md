@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Tom – the guy with the camera
 
-📍 Based in Cardiff, South Wales  
+📍 Based in Cardiff, South Wales, UK 🇬🇧  
 📸 I photograph weddings that feel more like stories than photoshoots  
 🎪 From tiny pub elopements to festival fields – I’m in, as long as it’s real
 
