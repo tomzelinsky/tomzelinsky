@@ -1,16 +1,37 @@
-## Hi there 👋
+# 👋 Hi, I'm Tom – the guy with the camera
 
-<!--
-**tomzelinsky/tomzelinsky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+📍 Based in Cardiff, South Wales  
+📸 I photograph weddings that feel more like stories than photoshoots  
+🎪 From tiny pub elopements to festival fields – I’m in, as long as it’s real
 
-Here are some ideas to get you started:
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 🤓 What I Do
+
+I'm a documentary wedding photographer.  
+I shoot the messy hugs, the nervous giggles, and the chaotic group photos where someone always blinks.  
+No posing. No cheese. Just honest storytelling.
+
+➡️ [My main website – yourweddingphotographer.uk](https://yourweddingphotographer.uk)
+
+---
+
+## 🧙‍♂️ Featured wedding (and actual magic)
+
+Looking for a wedding with a touch of folklore and mountain mist?  
+Here’s one of my favourites:  
+👉 [real wedding in Myddfai, Carmarthenshire](https://yourweddingphotographer.uk/wedding-in-myddfai-carmarthenshire/)
+
+---
+
+## 🔗 You’ll also find me here
+
+- 📷 [Instagram](https://www.instagram.com/yourweddingphotographer.uk)  
+- 🐘 [Mastodon](https://mastodon.social/@yourweddingphotographer)  
+- 🎨 [Behance](https://www.behance.net/tzelinsky)  
+- 📍 [Google Business Profile](https://www.google.com/maps/place/Your+Wedding+Photographer+Cardiff)
+
+---
+
+> “Not everyone likes to be photographed. But everyone deserves to be remembered.”  
+> — Me, trying to sound poetic on the internet.
