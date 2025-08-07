@@ -12,7 +12,8 @@ I'm a documentary wedding photographer.
 I shoot the messy hugs, the nervous giggles, and the chaotic group photos where someone always blinks.  
 No posing. No cheese. Just honest storytelling.
 
-➡️ My main website: [yourweddingphotographer.uk](https://yourweddingphotographer.uk)
+➡️ My main website: [Documentary wedding photography in Cardiff & South Wales and beyond](https://yourweddingphotographer.uk)
+
 
 ---
 
