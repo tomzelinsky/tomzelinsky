@@ -20,7 +20,6 @@ No posing. No cheese. Just honest storytelling.
 ## 🌧️ Favourite Wedding? A Festival, Some Rain, and a Rope That Snapped
 
 If you're wondering what happens when a couple says "I do" in the middle of a field, with umbrellas, hay bales, and a tug-of-war – here’s your answer.
-
 👉 [this candid story of a festival wedding in Glastonbury](https://yourweddingphotographer.uk/festival-wedding-splotts-moor-glastonbury/)
 
 
