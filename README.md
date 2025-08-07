@@ -16,11 +16,12 @@ No posing. No cheese. Just honest storytelling.
 
 ---
 
-## 🧙‍♂️ Featured wedding (and actual magic)
+## 🌧️ Favourite Wedding? A Festival, Some Rain, and a Rope That Snapped
 
-Looking for a wedding with a touch of folklore and mountain mist?  
-Here’s one of my favourites:  
-👉 [real wedding in Myddfai, Carmarthenshire](https://yourweddingphotographer.uk/wedding-in-myddfai-carmarthenshire/)
+If you're wondering what happens when a couple says "I do" in the middle of a field, with umbrellas, hay bales, and a tug-of-war – here’s your answer.
+
+👉 [this candid story of a festival wedding in Glastonbury](https://yourweddingphotographer.uk/festival-wedding-splotts-moor-glastonbury/)
+
 
 ---
 
