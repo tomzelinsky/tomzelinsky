@@ -29,7 +29,6 @@ If you're wondering what happens when a couple says "I do" in the middle of a fi
 
 - 🐘 [Mastodon](https://mastodon.social/@yourweddingphotographer)  
 - 🎨 [Behance](https://www.behance.net/tzelinsky)  
-- 📍 [Google Business Profile](https://www.google.com/maps/place/Your+Wedding+Photographer+Cardiff)
 
 ---
 
