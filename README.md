@@ -28,7 +28,8 @@ If you're wondering what happens when a couple says "I do" in the middle of a fi
 ## 🔗 You’ll also find me here
 
 - 🐘 [Mastodon](https://mastodon.social/@yourweddingphotographer)  
-- 🎨 [Behance](https://www.behance.net/tzelinsky)  
+- 🎨 [Behance](https://www.behance.net/tzelinsky)
+- 📷 [Flickr](https://www.flickr.com/people/yourweddingphotographeruk/)
 
 ---
 
