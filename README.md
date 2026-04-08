@@ -14,6 +14,8 @@ No posing. No cheese. Just honest storytelling.
 
 ➡️ My main website: [Documentary & candid wedding photography](https://yourweddingphotographer.uk)
 
+Most of my work takes place in [Cardiff](https://yourweddingphotographer.uk/cardiff-wedding-photographer/) — from small city ceremonies to larger celebrations where everything overlaps and unfolds naturally. This is where I often document weddings as they happen, without staging or interruption.
+I also photograph weddings across [South Wales](https://yourweddingphotographer.uk/south-wales-wedding-photographer/) — covering a mix of countryside venues, coastal locations, and everything in between. The setting changes, but the approach remains the same: observing, not directing.
 
 ---
 
